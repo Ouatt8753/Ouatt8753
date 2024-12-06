@@ -6,7 +6,7 @@
 
 - **WhatsApp** : [My WhatsApp number](https://wa.me/0777340911)
 - **Telegram** : [My Telegram Id](https://t.me/https://t.me/c8753)
-
+Je débute sur GitHub, et j'apprends à l'utiliser !
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...like human relationships
 
